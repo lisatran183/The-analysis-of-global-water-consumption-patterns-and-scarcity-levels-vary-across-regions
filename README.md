@@ -1,0 +1,1 @@
+# The-analysis-of-global-water-consumption-patterns-and-scarcity-levels-vary-across-regions
